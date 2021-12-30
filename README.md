@@ -1,0 +1,1 @@
+# pendoman-magang-industri
